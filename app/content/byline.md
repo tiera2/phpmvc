@@ -1,0 +1,1 @@
+Den bästa tiden att plantera ett träd är för 20 år sedan. Den näst bästa tiden är nu
